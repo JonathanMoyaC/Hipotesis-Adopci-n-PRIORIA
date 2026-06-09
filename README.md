@@ -1,0 +1,1 @@
+# Hipotesis-Adopci-n-PRIORIA
